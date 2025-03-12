@@ -1,6 +1,6 @@
 # This is me, Hannah.
 
-Writing **@schuechternbetrachtet** ([https://substack.com/@schuechternbetrachtet](url))
+Writing **@schuechternbetrachtet** ([https://substack.com/@schuechternbetrachtet](https://substack.com/@schuechternbetrachtet))
 
 Working **@MOTTO** (https://www.mottobrot.at/)
 
