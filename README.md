@@ -1,4 +1,6 @@
 # This is me, Hannah.
-I‘m complex enough, my home page doesn't have to be.
 
-I‘m a gemini.
+Writing @schuechternbetrachtet (https://substack.com/@schuechternbetrachtet)
+Working @MOTTO (https://www.mottobrot.at/)
+Studying @UniVie (https://www.univie.ac.at/)
+Visiting @ÖAW (https://www.oeaw.ac.at/acdh/acdh-ch-home)
